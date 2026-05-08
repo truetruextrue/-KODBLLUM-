@@ -1,0 +1,2 @@
+# -KODBLLUM-
+VERDADE×INTEGRAR÷Δ=∞
